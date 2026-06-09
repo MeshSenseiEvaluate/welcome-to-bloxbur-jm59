@@ -1,4 +1,4 @@
-# 
+# smart Scripts for welcome to bloxburg is the best welcome to bloxburg Script, featuring undetectable and teleport. Safe and powerful for all your
 
 
 
